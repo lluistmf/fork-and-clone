@@ -7,6 +7,7 @@ My favorite ice cream flavors:
 
 - Peppermint Stick
 - Mint Chip
+  Vanilla with Macadamia Nuts
 
 Stevie's favorite ice cream flavors:
 
